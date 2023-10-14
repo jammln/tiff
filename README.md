@@ -3,4 +3,6 @@ Nothing :/
 
 maded with C++
 
-this virus is can bypass uac be careful
+Im won't upload tiff.exe if you want to Get sample to send Messages at here
+
+***SendMailAtHere0@gmail.com
